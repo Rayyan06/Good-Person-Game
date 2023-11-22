@@ -53,7 +53,9 @@ It wasn’t entirely fair because power knew details about the missions, as you 
 
 ## The kids city 
   The kid city started when Ibrahim made a law to cause murders to happen less. It was about people unable to go outside after 12:00 am at night. 
-Braun Mission 
+
+## Braun Mission 
+  Forgotten
 
 
 
