@@ -6,6 +6,10 @@ One day, Ibrahim went on an expedition to a rumored area called Camo Caravi Isla
 The Alien Mission
 Ibrahim and Mock went on a mission together because there were rumors of alien ships (UFOs) so they decided to discover the real story behind these UFOs. Ibrahim and Mock decided to fly in one plane that was speed and reliable. They started flying and actually encountered quite a few UFO’s but they sped past him at unthinkable speeds. After a while Ibrahim and Mock decided to go in different planes and in different directions, Rumaisa also later joined using a slightly bigger plane than the DHC 6 Twin Otter. Ibrahim saw the first UFO and called Mock and Rumaisa to help. Ibrahim tried to follow the UFO but it was too fast, also Ibrahim went the wrong direction and found a black spiral and decided that it might be alien land. He told Mock and Rumaisa the coordinates and went through. Alien land  
 
+## The Alien Mission
+Ibrahim and Mock went on a mission together because there were rumors of alien ships (UFO) so they decided to discover the real story behind these UFO’s. Ibrahim and Mock decided to fly in one plane that was speed and reliable. They started flying and actually encountered quite a few UFO’s but they sped past him at unthinkable speeds. After a while Ibrahim and mock decided to go in different planes and in different directions, Rumaisa also later joined using a slightly bigger plane than the dhc 6 twin otter. Ibrahim saw the first UFO and called Mock and Rumaisa to help. Ibrahim tried to follow the UFO but it was too fast, also Ibrahim went the wrong direction and found a black spiral and decided that it might be alien land. He told Mock and Rumaisa the coordinates and went through. Alien land  
+
+*GOOD JOB.*
 
 ## The Rise of Son
 Once upon a time, before the Siren Head Event, Kid was being really annoying. Ibrahim found out that Kid had a son whose name was son. Son was very smart and started doing science experiments without any tools or chemicals. After a lot of trial and error, he managed to create a moving ball which he could ride around in without any use of special chemicals. Soon, Ibrahim [Finish Later]
