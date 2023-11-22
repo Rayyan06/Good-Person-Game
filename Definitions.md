@@ -1,8 +1,9 @@
 # Definitions & Characters 
 
 ## Good Person-Bad Person War
+
 ### Neta People
-Neta People were first invented because Rumaisa wanted to join the game. Overall they were enemies of Good People and bad people but eventually they made a treaty and stopped fighting.  But they would still refuse to give good people stuff.
+Neta People were first invented because Rumaisa wanted to join the game. Overall they were enemies of Good People and bad people but eventually they made a treaty and stopped fighting.  But they would still refuse to give good people stuff. Now they are the main enemy of Good People
 
 
 ### Kane
@@ -27,7 +28,7 @@ Camo caravi was a cross between a lot of people. He was a very good war ship des
 Camo Caravi Island was the place where Camo Caravi lived and ruled his empire. It was initially a mysterious place, full of unknowns and weirdness. 
 
 ### Venga Rise
-One day, Ibrahim wanted to start a store because He had seen a lot of others competing against each other. What Ibrahim did was open up a supermarket and have really cheap prices. He got funds from power and missions. Many people came to the grand opening of the venga store and was such a big hit that everything sold out almost immediately. He expanded and made more stores until they became known as The {second, zoof is better} Best Shopping Store Out There, a trillion dollar company and an awesome CEO.
+One day, Ibrahim wanted to start a store because He had seen a lot of others competing against each other. What Ibrahim did was open up a supermarket and have really cheap prices. He got funds from power and missions. Many people came to the grand opening of the Venga store and was such a big hit that everything sold out almost immediately. He expanded and made more stores until they became known as The {second, zoof is better} Best Shopping Store Out There, a trillion dollar company, and an awesome CEO.
 
 ### Kid rise
 Son 
@@ -35,7 +36,7 @@ Son
 ### Zoof’s rise
 Zoof was first invented by rumaisa. The name of the store was originally going to be zoov but then became zoof. Over time the popularity grew but not as much as venga.   
 Zoof and the arsons
- When zoof was originally invented people would arsen it and it would be like a jungle when you would walk into one. They would also try to sneak bombs in the fruits.
+ When zoof was originally invented people would arson it and it would be like a jungle when you would walk into one. They would also try to sneak bombs in the fruits.
 But overtime it all fixed.
 
 
@@ -53,11 +54,11 @@ Girlies were another team just like neta people. Made because of rumaisa. Althou
 
 ### Bob, Tim, and Jim
 Bob
-Bob is the revver
+> Bob is the revver
 ### Tim
-Tim is the scientist
+> Tim is the scientist
 ### Jim
-Jim is the wall builder
+> Jim is the wall builder
 ### Rose 
 
 Rose was a high ranking Neta People general who lived in Neta person country. She was very powerful and fought many battles against Good Person country.. But thankfully Neta People didn’t succeed in most battles.
@@ -70,3 +71,19 @@ The fight that made Neta People have the treaty was: One day, Neta People were e
 ### The Behemoth 
 
 Behemoths are an invention by Good people to keep peace and help with battles against Neta People lol.
+
+### Zam
+Zam is the official language of power city but everything is in English because it is translated
+
+## Cities and Places
+
+### Power City(Capital of Good Person Country)
+### Venga City, Good Person Country
+### Rose City(Capital of Rose Neta Person Empire)
+## Camo Caravi City(CCC), Capital of Camo Caravi Land & the continent of Camo Caravi
+## Netacity, Rumaisa's Neta Person city
+## The Barren Lands & Beyond
+> vast desert & dinosaurs, and miscellanous things
+> Ibrahimi spawners are also here
+> many missions occured here especially those that which involve strange and mysterious things
+
