@@ -1,4 +1,4 @@
-# Definitions                      
+# Definitions & Characters 
 
 ## Good Person-Bad Person War
 ### Neta People
@@ -14,9 +14,9 @@ Once upon a time, there was a poor kid (Don’t confuse him with Kid). Ibrahim s
 
 
 ### Killer B story
-Killer B was a normal person one day, but he had special abilities like he was very smart and could think of plans very well. He quickly became one of the most powerful people in power city.
+Killer B was a normal person one day, but he had special abilities like he was very smart and could think of plans very well. He quickly became one of the most powerful people in Power City.
 ### Predator X
- Predator x was invented when we watched a documentary about predator x. We also realised that it was a very good hunter and swimmer because it could easily kill a plesiosaur. He has also never did a face reveal yet in our game. He was not that popular in the game and we soon never talked about him again. However, he is still mentioned occasionally.
+ Predator x was invented when we watched a documentary about Predator X. We also realized that it was a very good hunter and swimmer because it could easily kill a plesiosaur. He has also never did a face reveal yet in our game. He was not that popular in the game and we soon never talked about him again. However, he is still mentioned occasionally.
 ### Power
 Once upon a time, Power was just a low ranking poop-cleaner. He wanted to become the ruler of the Good Person country onFe day. So he grinded and Ibrahim noticed that he was ranking up his levels and decided to help, slowly getting his rank up, until he was noticed by Waca and Kane. Waca and Kane realized that he should be leader because of his name and then Power’s career started. 
 
